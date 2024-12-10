@@ -1,5 +1,6 @@
 
-![Logo](https://www.metavivor.org/_media/uploads/images/homepage/LightUpMBC_Call_out.png)
+![Logo](https://www.metavivor.org/_media/uploads/images/homepage/LightUpMBC_Call_out.png)   
+
 Metavivor Annual Awareness Event (Source: Metavivor)
 https://www.metavivor.org/
 
